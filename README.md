@@ -4,3 +4,5 @@ I am Currently completing my final year at De Montfort University this i have be
 
 To view my cinematographic, video editing, motion graphic, sound editing work please click the link below:
 https://www.youtube.com/playlist?list=PLbztwybWil71HruHUcZaOyFpBdm00v93D
+
+I expect to have a gitbhub pages portfolio site up and running fairly soon
